@@ -2,7 +2,7 @@
  1.Im X-12k or 12k for short
  2.Im 14
  3.im in high school
- 4. im filipino but currently live in the u.s
+ 4. currently live in the u.s
  ---------------------------
   What im known for?
 1.FLuxus Support
